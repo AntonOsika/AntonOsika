@@ -1,4 +1,4 @@
-🎉 Hi, I’m @AntonOsika
+🎉 Hi, I’m [@AntonOsika](https://twitter.com/antonosika)
 
 👀 I’m interested in technology, AI, and humanity's future.
 
