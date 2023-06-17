@@ -1,4 +1,4 @@
-🎉 Hi, I’m @AntonOsika
-👀 I’m interested in technology, AI, and humanity's future.
-🌱 I’m currently growing Depict to revolutionize how we find the products we love.
-📫 You can reach me through LinkedIn or [Twitter](https://twitter.com/antonosika).
+- 🎉 Hi, I’m @AntonOsika
+- 👀 I’m interested in technology, AI, and humanity's future.
+- 🌱 I’m currently growing Depict to revolutionize how we find the products we love.
+- 📫 You can reach me through LinkedIn or [Twitter](https://twitter.com/antonosika).
