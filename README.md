@@ -1,4 +1,4 @@
-🎉 Hi, I’m [@AntonOsika](https://twitter.com/antonosika)
+🎉 I’m [@AntonOsika](https://twitter.com/antonosika)
 
 👀 Passionate about letting humanity reach its full potential.
 
